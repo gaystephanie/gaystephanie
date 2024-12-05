@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @gaystephanie
+- 👀 I’m interested in game
+- 🌱 I’m currently learning nothin
+- 💞️ I’m looking to collaborate on nothin
+- 📫 How to reach me dont
+- 😄 Pronouns: she/they
+- ⚡ Fun fact: furry
